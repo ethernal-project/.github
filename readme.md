@@ -1,1 +1,0 @@
-# Ethernal Project Organization
